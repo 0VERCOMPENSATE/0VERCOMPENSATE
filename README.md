@@ -1,4 +1,4 @@
-## 　　　　 　　　　 　　　　𝐎𝐋𝐈 / 𝐈𝐍𝐃𝐈𝐆𝐎.
+## 　　　　 　　　　𝐎𝐋𝐈 / 𝐈𝐍𝐃𝐈𝐆𝐎.
                  
   　　　　 　　　　 　　　　 ![](https://komarev.com/ghpvc/?username=SURV1VALH0RROR&label=PROFILE+VIEWS&color=ff0000)
 
