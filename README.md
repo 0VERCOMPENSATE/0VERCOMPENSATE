@@ -19,3 +19,8 @@
 >ㅤ♰ㅤ [**SPOTIFY**](https://open.spotify.com/user/6p7bx8ga4z373f7yayxogqxss?si=4212e081468c4570)
 >ㅤ♰ㅤ [**DISCORD**](https://discord.com/users/1075478540801294456)
 >ㅤ♰ㅤ [**MAIN RENTRY**](https://rentry.co/codem1stake)
+
+
+---
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6p7bx8ga4z373f7yayxogqxss&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&bar_color=e35478&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=6p7bx8ga4z373f7yayxogqxss&redirect=true)
