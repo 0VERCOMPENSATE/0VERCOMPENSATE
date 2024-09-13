@@ -18,7 +18,7 @@
 ![](https://file.garden/ZmtEuA_82UkbgtiL/github/Illustration10.png)
 >ㅤ♰ㅤ [**SPOTIFY**](https://open.spotify.com/user/6p7bx8ga4z373f7yayxogqxss?si=4212e081468c4570)
 >ㅤ♰ㅤ [**DISCORD**](https://discord.com/users/1075478540801294456)
->ㅤ♰ㅤ [**MAIN RENTRY**](https://rentry.co/codem1stake)
+>ㅤ♰ㅤ [**MAIN RENTRY**](https://rentry.co/koo1aid)
 
 
 ---
