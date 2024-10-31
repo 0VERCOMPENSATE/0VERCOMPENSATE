@@ -7,7 +7,7 @@
 
 　![](https://file.garden/ZmtEuA_82UkbgtiL/my%20friends%20png.png)
       
-**[crossinton](https://github.com/crossinton)**      **[soulstis](https://soilstis.carrd.co)**       **[crossbusterr](https://github.com/crossbusterr)**      **[defonotdan](https://github.com/defonotdan)** **kodasofficialnightmare**   
+**[crossinton](https://github.com/crossinton)**      **[soulstis](https://soilstis.carrd.co)**       **[crossbusterr](https://github.com/crossbusterr)**      **[defonotdan](https://github.com/defonotdan)** 
  
 
  
