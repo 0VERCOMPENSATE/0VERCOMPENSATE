@@ -1,5 +1,5 @@
-![](https://file.garden/ZmtEuA_82UkbgtiL/github/names.png) 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 
-   　ㅤ.ㅤ　　　[**he**him](https://pronouns.cc/_sp1ritual)ㅤ♰ㅤ**4teen**
+ 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 　　　 
+   　ㅤ.ㅤ　　　[**he**any](https://pronouns.cc/_sp1ritual)ㅤ♰ㅤ**4teen**
    
    ---
                  
